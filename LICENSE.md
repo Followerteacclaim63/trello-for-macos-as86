@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Trello for macOS automation with Trello for macOS new Automation: cloud backup & custom themes. Featuring cloud backup and custom themes, it's the best choice for
 
 
 
